@@ -35,7 +35,9 @@ Skandale oder Fehlleistungen der diversen Ämter für Verfassungsschutz
 
 # Baden-Württemberg #
 
-Vier Jahrzehnte lang hat der Verfassungsschutz den Freiburger Rechtsanwalt Michael Moos ausgespäht, und, wie dessen Akten nahelegen, auch die gesamte linke Szene: https://www.kontextwochenzeitung.de/gesellschaft/324/764-schwarze-seiten-4420.html
+  * Vier Jahrzehnte lang hat der Verfassungsschutz den Freiburger Rechtsanwalt Michael Moos ausgespäht, und, wie dessen Akten nahelegen, auch die gesamte linke Szene: https://www.kontextwochenzeitung.de/gesellschaft/324/764-schwarze-seiten-4420.html
+  * Der Gründer des umstrittenen Uniter-Vereins war ein Kollege des NSU-Opfers Michèle Kiesewetter und VS-Mitarbeiter
+https://taz.de/Thueringer-NSU-Ausschuss/!5585781/
 
 # Bayern #
 
