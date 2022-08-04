@@ -30,6 +30,7 @@ Skandale oder Fehlleistungen der diversen Ämter für Verfassungsschutz
   * Verfassungsschutz hat schon die Gruendung von indymedia linksunten abgeschnorchelt, Interview: https://rdl.de/beitrag/verfassungsschutz-hat-schon-die-gr-ndung-von-indymedia-linksunten-berwacht
   * Maaßen will sich dafür einsetzen das Bundesarchivgesetz zugunsten des BfV zu ändern, um die Herausgabe einer Akte über SS-Hauptsturmführer Alois Brunner zu verhindern: http://www.goettinger-tageblatt.de/Nachrichten/Politik/Deutschland-Welt/Verfassungsschutz-Chef-Neue-Vorwuerfe-gegen-Hans-Georg-Maassen
   * Sachsen: AfD-Funktionär arbeitet beim Verfassungsschutz https://daserste.ndr.de/panorama/archiv/2018/Sachsen-AfD-Funktionaer-arbeitet-beim-Verfassungsschutz,afdverfassungsschutz102.html
+  * Enttarnung des Bundesservice Telekommunikation: https://de.wikipedia.org/wiki/Bundesservice_Telekommunikation
 
 
 # Baden-Württemberg #
